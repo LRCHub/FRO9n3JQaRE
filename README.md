@@ -1,4 +1,4 @@
-# SUPER BEAVER – 燦然
+# SUPER BEAVER – 燦然 - Sanzen
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
